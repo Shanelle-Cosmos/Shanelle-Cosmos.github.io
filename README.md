@@ -1,2 +1,2 @@
 # Shanelle-Cosmos.github.io
-A page that focuses on my foction and Works-In-Progress!
+A page that focuses on my fiction and works-in-progres.
